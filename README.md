@@ -1,5 +1,5 @@
 - :O
-- This is like, not this guys file lol
+- This text kinda pops off ngl
 - uh, idk what to put here
 - your day going good?
 - hope so
